@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bjtubyj
+- 👋 Hi, I’m @Bjtubull
 - 👀 I’m interested in Gym, Sports, Hardware & 5GABCDI i.e.
 - 🌱 I’m currently learning Software & Patents
 - 💞️ I’m looking to collaborate on Invention
